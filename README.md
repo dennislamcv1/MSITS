@@ -1,5 +1,5 @@
 # MSITS
-## Microsoft IT Support Specialist Professional Certificate
+## Microsoft IT Support Specialist Professional Certificate (6 course series)
 
 Organizations rely on IT support professionals to drive the development and maintenance of various technological systems. Prepare for a new career in this high-demand field with professional training from Microsoft, one of the largest technology companies in the world. In the United States, jobs in Information Technology (IT) are projected to grow at a much faster rate than other occupations over the next decade.
 
